@@ -1,0 +1,1 @@
+aqki temgo coasa raras
